@@ -1,0 +1,1 @@
+I have a laptop charger to my left
